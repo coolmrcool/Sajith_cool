@@ -1,7 +1,4 @@
 # Sajith_cool
 
+![Screenshot (287)](https://github.com/coolmrcool/Sajith_cool/assets/121724836/8b875b05-2e6c-4a2d-b6a8-391bf6359d00)
 
-https://github.com/coolmrcool/Sajith_cool/assets/121724836/b8cdbd3a-1c64-4d3c-97df-5ff76d9e286e
-
-
-https://github.com/coolmrcool/Sajith_cool/assets/121724836/105e7377-1eef-4d85-8f46-c532de7aa538
